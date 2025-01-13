@@ -1,3 +1,3 @@
 # sellthissite
 
-This website is for sale. Contact me at realflutter@gmail.com.
+Only 100 dollars, would you like to buy it? Contact me at realflutter@gmail.com.
